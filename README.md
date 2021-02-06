@@ -1,2 +1,2 @@
-# imanojkumar.github.io
+# manojfyi.github.io
 Manoj Kumar - Home
